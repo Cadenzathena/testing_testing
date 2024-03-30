@@ -1,0 +1,3 @@
+I'm just learning how Github works don't mind me...
+I have nothing to really add here other than you should absolutely play persona 3 reload
+My username is inspired by it!
